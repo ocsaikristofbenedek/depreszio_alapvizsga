@@ -1,2 +1,2 @@
 # depreszio_alapvizsga
-7 óra 34 perc :D 40%
+9 óra 20 százalék 62%
